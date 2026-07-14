@@ -1,2 +1,2 @@
-# Sistema-de-control-financiero-lite-alta-gama-
+# Sistema-de-control-financiero-elite-alta-gama-
 .
